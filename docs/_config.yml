@@ -4,19 +4,20 @@ description: >- # this means to ignore newlines until "baseurl:"
   Een online dagboek van Simeon Duwel; geobscureerd en onzichtbaar voor
   het publieke oog, dus. Als je dit aan het lezen bent, ben je oftewel
   ikzelf oftewel iemand die ik heel erg vertrouw.
-baseurl: "" # the subpath of your site, e.g. /blog
-url: "" # the base hostname & protocol for your site, e.g. http://example.com
+
+baseurl: "/dorian-personal/" # the subpath of your site, e.g. /blog
+url: "https://walrusgumboot.github.io/" # the base hostname & protocol for your site, e.g. http://example.com
 twitter_username: simeondermaats
 github_username:  WalrusGumboot
 
-# Build settings
-theme: jekyll-theme-cayman
+# Theme settings
+header_pages:
+  - index.md
+  - over.md
 
-plugins:
-  - jekyll-feed
+footer: 'een site gemaakt met jekyll door Simeon Duwel.'
 
-minima:
-  skin: dark
+remote_theme: b2a3e8/jekyll-theme-console
 
 # Exclude from processing.
 # The following items will not be processed, by default.
