@@ -2,6 +2,9 @@
 layout: post
 title: vreemd soort leegte
 category: entry
+
+activiteiten: 6
+emotie: 4
 ---
 
 **15:09.** Ik begin er maar eens aan. Schrijven is voor mij altijd een goede manier van verwerking, een overlevingsmethode geweest (ook al is dat waarschijnlijk eerder omdat je dan dusdanig veel over je gedachtes en gevoelens moet nadenken dat het niet langer noodzakelijk is om ze te *voelen* of ervaren) en een terugblik op de dagen zoals ze waren kan geen kwaad. Als ik dit kan volhouden (en God weet dat ik hier waarschijnlijk na drie dagen al mee ophoud) lijkt het me cool om één heel jaar vol te schrijven. Elke dag minstens vijfhonderd woorden lijkt me een redelijke limiet; ik zit nu al aan 104.
