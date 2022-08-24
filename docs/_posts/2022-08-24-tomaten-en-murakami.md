@@ -1,6 +1,6 @@
 ---
 layout: post
-title: weinig interessants te melden
+title: tomaten en Murakami
 category: entry
 
 activiteiten: 2
