@@ -3,29 +3,26 @@ layout: post
 title: Brussel en Gilliam
 category: entry
 
-activiteiten: 10
-emotie: 10
+activiteiten: 9
+emotie: 9
 ---
 
-**00:05, volgende dag.** Ja waarlijk een fantastische dag. De Wamaki's zijn zo zo zozozozo ***zooo FUCKING GOED!!!!*** Ik kan niet dansen, maar ik heb echt gesprongen en gefunkt en geswongen als nooit tevoren. *Boeit* niet dat ik niet kan dansen ook, ik heb denk ik vandaag voor het eerst echt ***losgelaten***. Voor het eerst in mijn leven was ik in helemaal niks geïnteresseerd buiten de lol en de vibe. En dat is godverdomme mooi. (Zie je wel dat ik er geen wiet voor nodig heb, mam?)
+**20:27.** Een wat vroegere entry vandaag, aangezien ik nu op de trein zit en dat ook nog minstens een uur zal doen.
 
-Dus, voordat ik teveel mezelf in fanatiekerigheid verlies: vandaag heb ik wat lesgegeven, wat geprogrammeerd, wat muziek gemaakt. Niets ongebruikelijks, maar toen kwam het magische moment 20:00, toen Jesse, pap en ik ons naar Sint-Lambrechts-Herk begaven. Onderweg stopten we even bij mam: Jesse om een trui te halen en ik om voor Toni twee Slayeralbums te halen die ik toch nooit luister (*Reign In Blood* en *South Of Heaven* for the reference). Ik dacht dat hij er wel blijer mee zou zijn dan ik, en ik was correct. Eenmaal aangekomen was Langharige Bert de eerste die ik zag: hij gaf me spontaan een knuffel en vond het heel fijn dat we gekomen waren. Toen zag ik Leaf en Toni en de overdracht van cd's en discreet onder *The Trial* en *Elementaire Deeltjes: Sartre* verborgen thigh highs (die overigens ***zeer*** goed passen en staan, another day another slay) volgde spoedig. We praatten al vlot, Bertje kwam ook nog een tijdje langs en ondertussen speelde een Creedence Clearwater Revival-coverband op de achtergrond.
+Bon, vandaag ben ik dus naar het schone Brussel gegaan samen met Dries en Felix :) Het was heel leuk om ze allebei eens in het echt te zien, dan voelt die connectie die je hebt opgebouwd toch net iets "echter", of zo.
 
-Toen uiteindelijk het *moment suprême* aanbrak waren Toni, Leaf en ik naar voren gelopen op mijn initiatief en wachtten we tot de soundcheck en dergelijke afgelopen waren. En toen: ongeveer een uur en een kwartier heerlijke tunes, bangelijke ritmes en goede vibes. Mijn dans bestond voornamelijk uit een op-en-neer–beweging; zij het door middel van springen of kniebuigingen.
+Vanochtend heb ik snel ontbeten, een stuk van de afwas gedaan en ben toen snel naar mam gegaan om een les voor te bereiden. Die les heb ik om 12:00 dan maar gelijk gegeven, om daarna rond 12:50 terug naar pap te gaan omdat ik het treinticket vergeten was. Daarna was het op naar het station van Bilzen, waar ik met de fiets ongeveer 35 minuten over gedaan heb. Ik stond er dus ruim op tijd. Ik heb volgens mij wel een slag in mijn voorwiel, of er is alleszins iets goed fout mee, want ik voelde een periodieke hobbel wiens frequentie recht evenredig met mijn snelheid was. Tja. Ik hoop dat mijn fietslicht werkt zodadelijk, ik kom aan om 21:33 (als er geen vertragingen zijn, uiteraard) en tegen is het waarschijnlijk al wel redelijk donker. Nu goed, de N2 heeft verlichting, maar alles vanaf de Eigenweg tot Oude Vlijtingerweg is onbelicht. Ik zie wel.
 
-Enkele highlights van de show:
-* Bert die zijn kont als tamboerijnslagvlak gebruikte
-* Bert die van het podium afsprong, luidspreker in de hand, en zijn lyrics quasi begon te rappen
-* Bert die mij mee naar voor sleurde, met de djembé aan zijn heup
-* Bert die een party popper wou afvuren en hier gedurende een goeie halve minuut niet in slaagde
+Eens op de trein was het alleen maar in Hasselt overstappen naar de IC naar Blankenberge die volgens de NMBS-app volzet zou zijn, maar dat in de praktijk helemaal niet was. Een meevallertje dus. Dries stapte op dezelfde trein op, maar zat in een ander gedeelte van de trein. Oh well. Op het perron in Brussel-Centraal kwamen we elkaar tegen. Felix stuurde toen net dat hij op het Europaplein stond, zijn kapotte fiets in de hand. Na enkele minuten succesloos geprobeerd te hebben om de ketting er terug op te krijgen zijn we maar iets gaan drinken ergens.
 
+De chemie zat, zoals die dat op Twitter ook zit, gelijk goed. Zelfde soort humor, overlappende interesses, gewoonweg heerlijk tout court. De film zelf was best leuk (je merkte dat drie Pythons eraan mee hadden gewerkt lmao, echt je typische absurdistische/surreëele film), en de filmzaal ook: het was nog een film op spoel, met alle lo-fi kwaliteit van dien. Zeer charmant in ieder geval.
 
-Maar bovenal, tijdens Muzungu:
+Voorts zijn we al pratende naar de frituur gegaan, en dat was het dan eigenlijk ook wel; ik wou niet te laat thuis zijn en zoals het er nu uit ziet zal ik zeer op tijd thuis zijn.
 
-***BERT DIE EEN PRIDEVLAG BOVENHAALDE EN ERMEE GING ZWAAIEN !!!!!!!*** ABSOLUUT ZO FUCKING BASED HÈ HOLY SHIT IK HOUD VAN DIE MAN AAHHHHHH
+Kortom een zeer fijne dag, heel aangenaam :)))
 
-HIJ GAF SPECIALE SHOUTOUT NAAR GENDERIDENTITEIT EN LEAF EN IK KEKEN ELKAAR AAN VAN "EYO THATS US" WAHAHAHHA
+**23:09.** Voor ik slapen ga nog een snelle update: ben eindelijk thuis, Google Maps heeft me enorm omgestuurd langs Rijkhoven en Martenslinde in plaats van Waltwilder en Rosmeer, dus dat suckt. Heel vage situatie ook, ik moest ergens linksaf maar dat zag er gewoon straight up als een parking uit dus ben ik maar doorgereden langs een Basic Fit een of ander park in, ik moest continu bukken om mijn kop niet te stoten tegen lage takken. Oh ja en mijn voorlicht is stuk, dus ik heb basically heel de tijd mijn gsm's zaklamp gebruikt, maar je kunt er geen vijf meter ver mee kijken. Niets kan tippen aan dat gevoel van delirium wannneer je in een compkeet onbekende plaats blind bent en alleen maar af kunt gaan op een digitale stem, pure perfectie gewoon.
 
-oké ja dat was het ik moet ondertussen ook gaan slapen want het is 01:20 en ik heb per slot van rekening nog een les te geven morgen en natuurlijk naar Brussel te gaan!! hell yeah
+onderweg had ik uit de automaat bij de esso nog een flesje cola gekocht en half opgedronken, waarna ik 'm in de drankhouder van mn fiets stak wat fucking dom was want hij is er uitgevallen, dus ik ga morgen even de route terug afwandelen denk ik.
 
-op momenten als deze is het leven gewoon puur prachtig
+mijn benen zijn fucking moe en ikzelf ook dus ik ga slapen :)
