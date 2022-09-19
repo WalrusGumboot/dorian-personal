@@ -1,16 +1,16 @@
 ---
 layout: post
-title: oh nee
+title: ik mis het welbehagen
 category: entry
 
-activiteiten: 2
-emotie: 3
+activiteiten: 3
+emotie: 6
 ---
 
-Vigenère key vijf
+Een entry in het gewoon Nederlands, terug. Deze mag geweten zijn. Het betreft ditmaal een gevoel van gemis, van mankementen aan mezelf die eigenlijk niet de mijne zijn.
 
-cmc nn hxbvia lzjnzml. rp cmk jzv mwjwv lzpji jdnw Gmjk. cmc bva nji zxrvvcnnkqj yzxth. mns... jxfnilnsym. nji pnqymaj, bwmazzmthun jzv ujqmwidon, éés rijwqiw oz vrjo erqo ljy dm nnilrlo. en bvzns dv nji sufntxpviu, ni mns fcwxoilfymvnz. urxnkqnzv mnz djs Owwlzzns. zz ffmmw bzt ujzztwvkqyzv efi uroi almjwu. bz sdxomw jgsjfm, iu iz znxo dnwyenji wv tia qjzv. rp cmanivnw hm qjo onajmu, mzb pjqwnq qiw ajtujyqpj jdnwbiej viw iz ijsoznpfqwl zv mj vvmjm lrj yijw jx nji ayjztbj hiwnzz yqvonsy mw wjvmivzcjgmwi ym mwvit rzm byzmty. uwjqn ljy wqs Kdmw tjs ffn, qw gzqmj mqlmoqwlzv.
+Ja, lezer, het gaat weer over Fien. Ik mis het welbehagen dat ze me gaf. Ik mis het comfort dat een relatie me bood, ik mis me fijn voelen bij een andere persoon. (De eerlijkheid gebiedt me te zeggen dat ik ook gwn horny ben en seks mis, maar dat staat niet zo netjes.)
 
-ffo vd? nf sjs zvtjg pxuzv mfo lry jdnwbijy, riwy bwm bzmc ivb rp cqnw iqny hmn pvv ujqmw. yzv njmacj cmnko lrj pqcjmijwo Bxsd, mw yzv cbzmmj bi rp iqny cmceztoiz bnlzv mnz ijs fcwszv tnesns.
+Deze gedachten komen bovendrijven omdat ik door mijn galerij aan het scrollen was en tot in december geraakt ben, uiteraard een hele litanie aan verwijzingen naar Fien tegengekomen ben.
 
-rijwju wz? kcaj nbatibitjq vfi. sjsfma.
+Ik wil terug een relatie, eigenlijk. Ik wil terug iemand zoveel liefde kunnen geven als ik Fien gaf, en ergens ook wel die liefde terugkrijgen. Maar het is nu eenmaal zo, en zoals Camus constateert is die eindeloze strijd tussen het verlangen van de mens en het gewaar zijn van het feit dat dat een onhaalbaar verlangen is exact waar je het absurde vindt.
